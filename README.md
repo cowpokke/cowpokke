@@ -1,5 +1,6 @@
 <div align="center">
-ponytown's official Garysmith!! lol ,, <a href="https://github.com/pt-hall-of-media" target="_blank">pt-hall-of-media</a>
+ponytown's official Garysmith!! lol ,, <a href="https://github.com/pt-hall-of-media" target="_blank">pt-hall-of-media</a>♡<a href="https://github.com/pt-loveforfictional
+">pt-loveforfictional</a>
 
 <div align="center">
   
