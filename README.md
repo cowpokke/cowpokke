@@ -13,7 +13,7 @@ ponytown's official Garysmith!! lol ,, <a href="https://github.com/pt-hall-of-me
 <p/>
   
 <p align="center">  
-<a href="https://cowpoke.atabook.org/">atabook<a/>⠀⠀<a href="https://guns.lol/qunt">gunzlol<a/>⠀⠀<a href="https://friendshipnuts.straw.page/">my ppl <3<a/>
+<a href="https://cowpoke.atabook.org/">atabook<a/>⠀⠀<a href="https://guns.lol/qunt">gunzlol<a/>⠀
 <p/>
 
 
