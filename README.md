@@ -1,7 +1,4 @@
-<p align="center">  
-<a href="https://cowpoke.atabook.org/">atabook<a/>⠀⠀<a href="https://guns.lol/qunt">gunzlol<a/>⠀
-<p/>
-  
+
 
 <div align="center">
   
@@ -13,12 +10,9 @@
 
 <p/>
   
-
-<div align="center">
-ponytown's official Garysmith!! lol ,, <a href="https://github.com/pt-hall-of-media" target="_blank">pt-hall-of-media</a>♡<a href="https://github.com/pt-loveforfictional
-">pt-loveforfictional</a>♡<a href="https://github.com/pt-fashion
-">pt-fashion</a>♡<a href="https://github.com/FOLKTOWN">FOLKTOWN</a>
-
-
+<p align="center">  
+<a href="https://cowpoke.atabook.org/">atabook<a/>⠀⠀<a href="https://guns.lol/qunt">gunzlol<a/>⠀
+<p/>
+  
                                     
 
