@@ -12,7 +12,7 @@
 <p/>
   
 <p align="center">  
-<a href="https://cowpoke.atabook.org/">atabook<a/>⠀ <a href="https://pronouns.cc/@bkq">prns.cc</a>  <a href="https://guns.lol/qunt">gunzlol<a/>
+<a href="https://cowpoke.atabook.org/">atabook<a/>⠀ <a href="https://pronouns.cc/@bkq">prns.cc</a>⠀ <a href="https://guns.lol/qunt">gunzlol<a/>
 <p/>
   
                                     
